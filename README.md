@@ -1,1 +1,1 @@
-ini adalah wesbite SMAN 1 MORO'0
+ini adalah wesbite SMAN 1 MORO'O
