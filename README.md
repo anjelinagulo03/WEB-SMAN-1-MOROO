@@ -1,1 +1,1 @@
-ini adalah wesbite SMAN 1 MORO'O
+INI ADALAH WEBSITEKU SMAN 1 MORO'O
